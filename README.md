@@ -1,2 +1,3 @@
 # Definitions
 Why haven't we defined these yet?
+"The soul — or the conscious 'you' — is what a replica of you would lack. Think of it this way: if I made a carbon copy of you, a perfect duplicate, it wouldn't possess your soul. It might act independently, capable of diverging from you in more than just circumstance. But you wouldn’t perceive yourself as it. You wouldn’t see through its eyes or feel its heartbeat — you would still be experiencing your own. The soul is the force tied to you as the observer of this experience. It is a vessel beyond what we currently understand or can replicate. It cannot be divided or shared. It exists solely for the individual."
